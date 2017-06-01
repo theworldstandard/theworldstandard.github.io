@@ -1,2 +1,1 @@
-# theworldstandard.github.io
-The World Standard
+You're probably looking for [わーすた](http://wa-suta.world/) :heart:
